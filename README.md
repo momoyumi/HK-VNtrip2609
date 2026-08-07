@@ -45,7 +45,7 @@
   16:10　KL着
 
 ## Memo
-- マカオのホテル：[Greenery Inn HOtel](https://www.greeneryinn.com.mo/en) 9/2 
+- マカオのホテル：[Greenery Inn Hotel](https://www.greeneryinn.com.mo/en) 9/2 
 
 - 香港のホテル：[Dorsett Mongkok](https://www.mongkok.dorsetthotels.com) 9/3-9/6
 
